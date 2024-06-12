@@ -8,7 +8,19 @@ We have put together this website in response to what we learnt and heard, in or
 *If you are an au pair, a host parent, or know someone who may be interested in becoming an au pair, it could be worth keeping this website handy just in case.* 
 
 ## What to expect as an au pair in the Netherlands
-
+#### 1. Au pairing in the Netherlands is different than you may have learnt it to be in other countries
+There are multiple ways in which countries organise their au pair programs, as we heard frequently throughout our research. In the Netherlands, au pairing is viewed as a cultural exchange, where you are accepted into a host family (as a member), and perform **light housework** and **childcare** in return. Au pairs and their families sign a contract through an agency before starting, which is a mandatory step for legal au pairing. This contract outlines what kind of labour you can and cannot do, so it's important to read it and keep it handy. The IND is the official government organisation which handles au pairing, and it publishes up-to-date information about the program.
+#### 2. Expect to have to stand up for yourself, even if it's uncomfortable
+ As a member of your new family, you have the right to stand up for yourself in situations where you're being asked to do something that you don't like, if you want/need something, if you're being asked to do something illegal (like labour outside of your contract agreement), or if you simply have something to say. It is going to be uncomfortable, but this is also an experience to explore your own boundaries: it's up to you to stand up for yourself and figure where your own boundaries lie.
+#### 3. Expect to have to do at least *some* work
+#### 4. Expect to make lots of friends!
+#### 5. Expect there to be challenges along the way, especially with your host family
+#### 6. Maybe you'll have to handle the children in ways that you're not used to
+Broadening perspective - exactly why you're here 
+#### 7. Dutch people are very direct...
+... and they also expect you to be the same. We found countless conflicts and miscommunications where host families *expected* their au pair to be direct, or where the au pair felt upset about the way their host family spoke to them, despite it being very typical Dutch directness. If you're aware of it before, you're less likely to be offended or run into any problems. Feel free to tell your host family that you're not used to this kind of communication, and tell them how you prefer it: it's meant to be a cultural exchange for both sides, after all!
+#### Absolute no-gos
+- Abandoning children - they're your *responsibility*, you're being trusted with arguably the most important thing in your host family's life, and you need to treat it with that weight! 
 
 ## What to expect as a host family in the Netherlands
 #### 1. Firstly, your au pair does not work for you. 
